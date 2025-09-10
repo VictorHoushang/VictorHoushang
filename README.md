@@ -7,6 +7,7 @@
 #### He trabajado de cocinero en Gagawa durante 9 meses y a dia de hoy estoy en goiko cumpliendo 14 meses
 ### ¿Como contactar conmigo?
 Email: vrdecolmenares@gmail.com 
+
 Linkedin: www.linkedin.com/in/víctor-houshang-rodríguez-de-colmenares-dargahi-bb5b30182
 
 
