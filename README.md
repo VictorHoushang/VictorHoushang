@@ -3,8 +3,12 @@
 #### Me llamo Victor Houshang, soy una persona curiosa y con ganas de aprender
 ### ¿Cual es mi formación?
 #### Actualmente estoy terminando el grado superior de ASIR en la U-Tad
+### Vida laboral
+#### He trabajado de cocinero en Gagawa durante 9 meses y a dia de hoy estoy en goiko cumpliendo 14 meses
 ### ¿Como contactar conmigo?
 Email: vrdecolmenares@gmail.com
+Linkedin: www.linkedin.com/in/víctor-houshang-rodríguez-de-colmenares-dargahi-bb5b30182
+
 
 
 
