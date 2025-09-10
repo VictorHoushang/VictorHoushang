@@ -1,6 +1,12 @@
 ## Hi there 👋
 ### ¿Quién soy?
-#### Mi nombre es Victor Houshang
+#### Me llamo Victor Houshang, soy una persona curiosa y con ganas de aprender
+### ¿Cual es mi formación?
+#### Actualmente estoy terminando el grado superior de ASIR en la U-Tad
+
+
+
+
 <!--
 **VictorHoushang/VictorHoushang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
